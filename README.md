@@ -1,3 +1,3 @@
 # Companies
 ## Goldman-Sachs
-mid-July
+mid-July(2020- July 14-30)
